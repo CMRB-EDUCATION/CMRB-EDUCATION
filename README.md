@@ -17,9 +17,11 @@ Check out our detailed [**SUBJECTS.md**](./SUBJECTS.md) for a complete topic-wis
 
 ## 📱 Connect With Us
 
-Follow us on Instagram for daily educational updates, tips, and resources:
+Follow us on our social media channels for daily educational updates, tips, and resources:
 
-**[🔗 instagram.com/cmrbeducation](https://instagram.com/cmrbeducation)**
+- **📸 Instagram** - [instagram.com/cmrbeducation](https://instagram.com/cmrbeducation)
+- **𝕏 Twitter/X** - [x.com/cmrbeducation](https://x.com/cmrbeducation)
+- **▶️ YouTube** - [youtube.com/@cmrbeducation](https://youtube.com/@cmrbeducation)
 
 ---
 
