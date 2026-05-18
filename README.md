@@ -39,6 +39,7 @@ Follow us on our social media channels for daily educational updates, tips, and 
 - **𝕏 Twitter/X** - [x.com/cmrbeducation](https://x.com/cmrbeducation)
 - **▶️ YouTube** - [youtube.com/@cmrbeducation](https://youtube.com/@cmrbeducation)
 - **💼 LinkedIn** - [linkedin.com/company/cmrb-education](https://linkedin.com/company/cmrb-education)
+- **🧵 Threads** - [threads.net/cmrbeducation](https://threads.net/cmrbeducation)
 
 ---
 
