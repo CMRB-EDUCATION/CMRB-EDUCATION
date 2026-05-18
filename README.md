@@ -25,6 +25,12 @@ Check out our detailed [**SUBJECTS.md**](./SUBJECTS.md) for a complete topic-wis
 
 ---
 
+## 📞 Contact Us
+
+**Phone:** [+91 8529794072](tel:+918529794072)
+
+---
+
 ## 📱 Connect With Us
 
 Follow us on our social media channels for daily educational updates, tips, and resources:
